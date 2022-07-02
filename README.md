@@ -27,6 +27,6 @@ What are you waiting for, aren't you tired of getting attacked and crashing your
 
 to contact us
 
-https://turkwaf.pw
+https://turkshield.net
 
 Telegram;https://t.me/chesterfieldnew
